@@ -1,0 +1,2 @@
+# alemiga
+CREATING A GITHUB ACCOUNT
